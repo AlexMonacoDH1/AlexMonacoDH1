@@ -5,6 +5,7 @@ At the moment I´m studying for the CCNA.
 
 - Link to my Linkedin: https://www.linkedin.com/in/alexmonaco2099/
 - Link to my Facebook: https://www.facebook.com/alex.monaco.562/
+- e-mail: alexandremonaco@hotmail.com
 - Whatsapp: +5511913465369
 
 - ⚡ Fun fact: I´m a good windsurfer when there´s a free time and it´s windy, of course.
